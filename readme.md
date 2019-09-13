@@ -1,6 +1,6 @@
-# Why bust out another thousand?
+# Why Bust Out Another Thousand (B.O.A.T.)?
 
-Use your mind, prevent a catastrophe. Don't spend the extra grand. If you like the water, just keep in mind it don't mix well with metal. No amount of grease scheduling will beat it. In the end water wins. Know the signs of age and make the preventative maintenance schedule and save the "G" for something else- like the parts to build you an underwater rover with... well that may be a credit card purchase for us blue collar folks with that luxury, but who's counting here- we're talking white collar sports. 
+Use your mind, prevent a catastrophe. Don't spend the extra grand. Or pray a lot and hope for the best. If you like the water, just keep in mind it don't mix well with metal. No amount of grease scheduling will beat it. In the end water wins. Know the signs of age and make the preventative maintenance schedule and save the "G" for something else- like the parts to build you an underwater rover with... well that may be a credit card purchase for us blue collar folks with that luxury, but who's counting here- we're talking white collar sports. 
 
 We have a couple trailers, a couple engines (One 2 stroke 200 Series Mercury, One BF90A Honda 4-stroke) a couple fiberglass boats, and not so cheap gear to catch a monster with here. Oh- and a bimini top to sew, but don't tell any of your "poor" friends we know how to sew (or know how to fix broken sewing machines) or you will have 50 pairs of pants, three machines and only one works, sitting next to your bed in a week- I promise you that.
 
