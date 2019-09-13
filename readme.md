@@ -49,7 +49,7 @@ I have a lot of pics on other machines I need to aggregate for the Mercury. I wi
 
 Honda Prop bushing
 
-<img src="./images/20190526_122402.jpg>
+<img src="./images/20190526_122402.jpg">
 
 Bimini on. There are a lot more pictures for the dismantle. Cam and I marked each section with a sharpie to address the corners, by number for the pieces that connected, and in what direction. Then started dissecting it with a seam ripper, 
 <img src="./images/20190524_183638.jpg">
