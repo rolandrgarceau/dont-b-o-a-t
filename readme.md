@@ -62,7 +62,7 @@ Fabric density is the key takeaway here. The Panda had a thick wool like poly wh
 
 <img src="./images/20190524_224130.jpg">
 
-2/3
+2/3 of the way and it looks like we may have eaten a few lemons...
 
 <img src="./images/20190525_231959.jpg">
 
