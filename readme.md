@@ -51,14 +51,25 @@ Honda Prop bushing
 
 <img src="./images/20190526_122402.jpg">
 
-Bimini on. There are a lot more pictures for the dismantle. Cam and I marked each section with a sharpie to address the corners, by number for the pieces that connected, and in what direction. Then started dissecting it with a seam ripper, 
+Bimini on. There are a lot more pictures for the dismantle. Cam and I marked each section with a sharpie to address the corners by number for the pieces that connected, and in what direction they faced. Each top is made to fit its metal base individually. Then we started dissecting it with a seam ripper, pinned the new pieces to fabric from Jimmy at Tsuga fabric, and used a healthy amount of belding tape off a roll he donated for the cause. 
 <img src="./images/20190524_183638.jpg">
 
-1/3 Sewn.
+1/3 Sewn. Notice the pucker. Thats another rookie move. Drink you prune juice and let the pros do it- I mean its a great learning experience to have to roll up bolts of fabric to run through a home machine not meant for industrial application. We only skipped the timing on the first machine once. Thanks to a kind Jamaican from Pittsburg that repaired vacuum cleaners on the side, we were back in business after experimenting first with my sons from scratch Panda costume:)
+
+<img src="./images/20181029_233358.jpg">
+
+Fabric density is the key takeaway here. The Panda had a thick wool like poly which needed a thicker needle like a leather punch to make it though. Little did we know that small pieces were pulling off and wrapping around the bobbin housing, inevitably breaking the bobbin and forcing the needle to hit the side of it and making it skip timing. What a mess of knots you will find on the back of that seam when it happens. That's why its good to have an experiment before the real thing.
+
 <img src="./images/20190524_224130.jpg">
+
 2/3
+
 <img src="./images/20190525_231959.jpg">
-Done.
+
+Done. And again I broke the bobbin on the last 3 feet of stitching. Plastic 90's model. i took it to my friend that had a 60's all steel version and we blew right through it. The funny thing was, she was a seamstress and never worked with big pieces of fabric- my rookie lines were straighter than hers. Go figure. Point is watch the pucker factor. The trick here is to realize the fabric makes a turn around the edges of the fabric and is not a square fit to the frame, but rather a rounded one. You have to sew it on a flat plane and feed the fabric in such a way as to wrap the feed in a fluid circular motion. 
+
+Another great tool is the double sided tape to stick the two pieces together before making the seam. Also, the last big key takeaway is the full felled seam. When you have to make a seam that is exposed on both sides you need to do so in a fashion as to not allow the cut edge exposed to flapping in the wind and unraveling. Thats tricky. My mom shot me a video worth checking out on the 3 main types used for sail boat sails. Parachutes are the next big item to tackle here for both seams and the pucker factor. Good luck with that. My bimini handles 25 knots well and is still holding. That's enough for me.
+
 <img src="./images>
 
 
