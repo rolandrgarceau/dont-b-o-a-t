@@ -2,7 +2,7 @@
 
 Use your mind, prevent a catastrophe. Don't spend the extra grand. Or pray a lot and hope for the best. If you like the water, just keep in mind it don't mix well with metal. No amount of grease maintenance scheduling will beat it. In the end water wins. Know the signs of age and make the preventative maintenance to save the "G" for something else- like the parts to build you an underwater rover with... well that may be a credit card purchase for us blue collar folks with that luxury, but who's counting here- we're talking white collar sports. 
 
-We have a couple trailers, a couple engines (One 2 stroke 200 Series Mercury, One BF90A Honda 4-stroke) a couple fiberglass boats, and not so cheap gear to catch a monster with here. Oh- and a bimini top to sew, but don't tell any of your "poor" friends we know how to sew (or know how to fix broken sewing machines) or you will have 50 pairs of pants, three machines and only one works, sitting next to your bed in a week- I promise you that.
+We have a couple trailers, a couple engines (One 1978 2 stroke 200 Series Mercury, One BF90A Honda 4-stroke) a couple fiberglass boats, and not so cheap gear to catch a monster with here. Oh- and a bimini top to sew, but don't tell any of your "poor" friends we know how to sew (or know how to fix broken sewing machines) or you will have 50 pairs of pants, three machines and only one works, sitting next to your bed in a week- I promise you that.
 
 ## Tools:
 * One good brain
