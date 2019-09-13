@@ -17,7 +17,13 @@ Keeping the blue collar part in the front of the topic here. Let's start with no
 ## Trailer "issues"
 
 <img src="./images/axle-exposed.jpg">
+Clean all the debris from the broken bearing. Don't forget to pack your new bearings.
 <img src="./images/axle-lookdown.jpg">
+It's about time to replace this axle with a larger heavier rated one for a 2000lb boat. 
+<img src="./images/20190817_123119.jpg">
+
+Hub assemblies may come with prepacked bearings and a race preseated. I think we ended up getting ours from the auto part store for 50 bucks a piece after packing a few by hand and learning how tight is too tight on a castle nut. Too loose also can show symptoms of the trailer tires wearing like walking the dog, where the tires are not running completely parallel with the vehicle.
+
 <img src="./images/20190602_091249.jpg">
 Broken Keel mount measurement. If it ain't broke don't fix it. But I say if you can get the mount and roller cheaper than just the roller from the manufacturer, why not?
 
@@ -38,9 +44,6 @@ I have a lot of pics on other machines I need to aggregate for the Mercury. I wi
   * only had to reseat and adjust shim plates once to get the cog to shift smooth between forward and reverse. Not bad for a rookie.
   * Double seals on the prop shaft wore a double groove into it over 40 years. Need to mic and get custom seals with larger inner diameter rubber or get a new $350 shaft. 
   * Keeping an eye on lower unit gear oil has damaged fill screw. Need to tap a larger diameter fill screw. Redneck 101 is teflon tape and homemade spacers. Not good I know, but that will be addressed this fall. 
-<img src="./images/20190817_123119.jpg">
-
-Hub assemblies
 
 <img src="./images/20190522_190742.jpg">
 
