@@ -70,5 +70,9 @@ Done. And again I broke the bobbin on the last 3 feet of stitching. Plastic 90's
 
 Another great tool is the double sided tape to stick the two pieces together before making the seam. Also, the last big key takeaway is the full felled seam. When you have to make a seam that is exposed on both sides you need to do so in a fashion as to not allow the cut edge exposed to flapping in the wind and unraveling. Thats tricky. My mom shot me a video worth checking out on the 3 main types used for sail boat sails. Parachutes are the next big item to tackle here for both seams and the pucker factor. Good luck with that. My bimini handles 25 knots well and is still holding. That's enough for me.
 
+## Gear
 
+Sometimes the best "bust out another thousand" is for the gear to go fishing with. I like the way new technology looks for fish today. It has side imaging that allows for perpendicular views up to 200 ft from the boat, but sadly enough it does in fact cost a grand amount- but is is worth it. The key to landing the big one here is to follow the bait. Behind every good fisherman is a stinky baitwell too...
+
+<img src="./images/20190617_172526.jpg">
 
